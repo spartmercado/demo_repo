@@ -13,3 +13,10 @@ Look into building trust on teams
 - help them be comfortable into RLS
 
 payment st peter?
+
+Uni trainings
+
+CS training
+
+
+Fiberblaze speed - slow again
